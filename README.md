@@ -1,0 +1,1 @@
+# FounderPal-AI-Promo-Code-30-OFF-2025ve
